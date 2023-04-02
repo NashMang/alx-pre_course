@@ -1,1 +1,1 @@
-My first readme was not a walk im the park
+My first readme was not a walk in the park
